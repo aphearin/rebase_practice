@@ -18,3 +18,5 @@ So frustrating. He's unstoppable.
 Ok, about to stop now
 
 I missed the detail, so I'm going back now
+
+He's asking whether it's normal to rush over to the house
